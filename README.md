@@ -38,4 +38,4 @@ I am passionate about building ERP systems, business applications, and digital t
 https://eng-omar-ali.netlify.app
 
 💼 LinkedIn:
-https://linkedin.com/in/ضع-رابطك
+www.linkedin.com/in/eng-omar-ali-mahmoude-software-engineer
